@@ -1,1 +1,1 @@
-# Cat-logo-Smartly-1.0
+# Catalogo-Smartly-1.0
